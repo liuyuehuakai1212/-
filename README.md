@@ -4,7 +4,7 @@
 只要发一封任意内容邮件,到邮箱：huakai1122＃gmail.com   ＃换成@ 系统会自动回覆最新地址 <br />
 
 六月花开最新地址：<br />
-lyhk.cd.st    免翻墙<br />
+http://llyhk.cd.st    免翻墙<br />
 
 https://hkly.blog.fc2blog.us/   需翻墙<br />
 
