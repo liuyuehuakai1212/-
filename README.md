@@ -1,8 +1,11 @@
-# Baacloud官网网址发布，请大家Ctrl+D收藏此页面避免丢失！
+六月花开最新地址发布页请大家CTRL + D收藏此页以免丢失
 
-# 免代理网址:http://t.colafu.com/ernoq
+最新地址：
 
-# 永久官网:https://www.baacloud.com 【中国大陆地区访问需要代理】
+http://lyhk.cd.st/ 免翻墙
 
-# 无法打开请多刷新几遍，或者过几个小时再试，或者发邮件联系客服
-# 客服联系邮箱：kefu#baacloud.com #替换成@
+https://hkly.blog.fc2blog.us/ 需翻墙
+
+https://baa.im/806963 梯子工具
+
+发送邮件获取最新地址：huakai1122＃gmail.com＃换成@
