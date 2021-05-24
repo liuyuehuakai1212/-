@@ -1,7 +1,7 @@
 六月花开-最新地址发布页</br>请大家CTRL + D收藏此页以免丢失
 最新地址：
 
-http://hkly.ek.la/ 免翻墙
+http://hkly01.ek.la/ 免翻墙
 
 https://hkly.blog.fc2blog.us/ 需翻墙
 
