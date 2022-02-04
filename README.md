@@ -7,4 +7,4 @@ https://lyhk.at.ua/blog/ 免翻墙
 
 https://hkly.blog.fc2blog.us/ 需翻墙
 
-发送邮件获取最新地址：huakai1122＃gmail.com＃换成@
+发送邮件获取最新地址：zxcvassd1122＃gmail.com＃换成@
