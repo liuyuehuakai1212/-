@@ -1,5 +1,5 @@
 六月花开-最新地址发布页</br>请大家CTRL + D收藏此页以免丢失
-最新地址：
+最新发布页地址：https://allmylinks.com/lyhk 以后在此更新地址，本页面将不再更新最新地址
 
 http://19.mybb.rocks/ 免翻墙（新）
 
